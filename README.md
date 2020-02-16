@@ -1,2 +1,2 @@
-# Emiray-Can-E-ref-ENT-RK
+# Emiray-Senturk
 I am designer and student.
